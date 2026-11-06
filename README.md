@@ -222,4 +222,4 @@ Space Marine is offered as a full free version with all features and updates inc
 Don't miss out on the chance to dive into the Warhammer universe! **Download Space Marine today and experience epic battles like never before!**
 
 ---
-**Last updated:** 2026-11-06 17:51:08 UTC
+**Last updated:** 2026-11-06 22:52:01 UTC
